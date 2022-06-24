@@ -1,1 +1,1 @@
-# LgaSegura
+# LigaSegura
